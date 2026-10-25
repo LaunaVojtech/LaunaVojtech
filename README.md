@@ -4,4 +4,4 @@
 - 🌱 I’m currently learning IT
 - 📫 How to reach me: launavojta@seznam.cz
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I am 22 years old
+- ⚡ Fun fact: I am 23 years old
